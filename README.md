@@ -12,6 +12,10 @@
 
 ---
 
+> ## **[`QUEM NÃO TEM VOZ`](QUEM-NAO-TEM-VOZ.md)** — **por que não há feat com Tupã nem com Erê, e a razão não é cautela.** **Tupã é o estrondo, não o falante. Erê é a intermediação, não um dos lados.** Dar voz a qualquer um seria **erro de categoria nos termos da própria tradição** — e a regra nova **permite mais** que a antiga: tudo, menos ventriloquismo.
+
+---
+
 ## A regra que governa o uso
 
 > # **Escrever na tradição não é escrever imitando ninguém.**
